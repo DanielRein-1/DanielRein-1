@@ -1,9 +1,6 @@
 - 👋 Hi, I’m @DanielRein-1
-- 👀 I’m interested in machine learning and AI
-- 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on 
-- 📫 How to reach me Daniellrein8@gmail.com 
-- 😄 Pronouns: 
+- 🩷 No crush only crash
+- 📫 How to reach me Daniellrein8@gmail.com  
 - ⚡ Fun fact: i love coding
 
 <!---
